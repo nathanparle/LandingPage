@@ -1,0 +1,1 @@
+Will be making a landing page as directed by ODIN PROJECT. May use own images instead of those provided to replicate potential future website. 
